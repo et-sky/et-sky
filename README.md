@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @et-sky
+- 👀 I’m interested in helping and larming so ask and i will hlep
+- 🌱 I’m currently learning ... haven picked one yet but im looking
+- 💞️ I’m looking to collaborate on ... on ai and read progrems
+- 📫 How to reach me ... ethan_craven@yahoo.com
